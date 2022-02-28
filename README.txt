@@ -1,1 +1,0 @@
-My name is Yuqing Luo. I don't watch any sports so I don't have a favorite sport team :(
